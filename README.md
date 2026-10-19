@@ -2,4 +2,4 @@
 
 Hier werden allgemeine Infos gepostet
 
-Reguläre Termine sind Dienstags um 8:00 im Raum HQ.007
+Reguläre Termine sind Dienstags um 17:30 im Raum HQ.007
